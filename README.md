@@ -7,6 +7,10 @@
 - ⚡ Fun fact: ...
 
 <!---
+
+
 Brijkuma/Brijkuma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+एक असली 20 साल का लड़का, नारंगी टी शर्ट नीली जींस स्नीकर्स पहने हुए है और उसकी टी-शर्ट पर नाम "हरीश" लिखा हुआ है और लड़का भारत का राष्ट्रीय ध्वज पकड़े हुए सड़क पर खड़ा है, और उसके पीछे इंडिया गेट दिल्ली है। और ऊपर आसमान पर "हैप्पी इंडिपेंडेंस डे 2024" लिखा हुआ है यथार्थवादी छवि उच्च गुणवत्ता बनाएँ।
